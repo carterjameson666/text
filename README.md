@@ -16,3 +16,4 @@ doujee
 ccc
 ppp
 ! hate coke
+cost
