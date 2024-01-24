@@ -1,5 +1,5 @@
 cute
-bad
+bad smoke
 hoes
 beer
 oshey
