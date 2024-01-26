@@ -12,7 +12,7 @@ eyes
 ekkk
 don
 lose me
-doujee
+doujee drugzz
 ccc
 ppp
 ! hate coke
